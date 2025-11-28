@@ -36,7 +36,7 @@
 
 - Email: arman.gevorkyian@gmail.com 
 - GitHub: [Myaso7](https://github.com/Myaso7)  
-- Telegram: [@твоя_ссылка](https://t.me/)  
+- Telegram: (https://t.me/Myasnoy1377)  
 
 ---
 
